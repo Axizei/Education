@@ -1,2 +1,2 @@
 # Education
-Some wisdomFor all Ages
+Some wisdom for all Ages
